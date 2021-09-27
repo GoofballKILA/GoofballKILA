@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GoofballKILA
+- 👀 I’m interested in streaming video games.
+- 🌱 I’m currently learning programming and game development
+- 💞️ I’m looking to collaborate on projects with my classmates
+- 📫 How to reach me @goofballkila@gmail.com
